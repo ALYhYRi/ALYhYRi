@@ -67,6 +67,6 @@ This information is only for educationla purpose and we are not responsible for 
 Joining Telegram 
 
 
-Channel:- https://t.me/termuxalsharabi
+Channel:- https://t.me/ALYhiRi1
 
-        تحياتي لكم صدام الشرعبي 
+        تحياتي لكم الجوٰكر اليحيري𖤍 
